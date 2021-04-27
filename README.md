@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @praveen-g-v
-- 👀 I’m interested in JavaScript with some basic project
+- 👀 I’m interested in Learning new Things
 - 🌱 I’m currently doing My third year of Computer Science and Engineerring
 - 💞️ I’m looking for a job
 - 📫 How to reach me at mail gvpraveen1812@gmail.com
