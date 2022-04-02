@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @praveen-g-v
 - 👀 I’m interested in Learning new Things
-- 🌱 I’m currently doing My third year of Computer Science and Engineerring
+- 🌱 I’m currently doing My final year of Computer Science and Engineerring
 - 💞️ I’m looking for a job
 - 📫 Reach me at mail gvpraveen1812@gmail.com
 
