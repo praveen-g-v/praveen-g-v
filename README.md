@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @praveen-g-v
 - 👀 I’m interested in Learning new Things
-- 🌱 I’m currently working as Information Security Manager at Tata Consultancy Services
+- 🌱 I've worked as a Developerat Tata Consultancy Services
 - 💞️ I’m looking for a change in Carrier and open for jobs.
 - 📫 Reach me at mail gvpraveen1812@gmail.com
 
